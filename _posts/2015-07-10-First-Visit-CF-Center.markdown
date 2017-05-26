@@ -25,7 +25,7 @@ Dr. Guglani spoke with us for about an hour or so and covered just about everyth
  
 He also let us know that CF patients can’t be around each other. Cystic Fibrosis is the only disease where the patients can’t be around each other.
  
-“The sad but true news is that cystic fibrosis patients do pose a threat to each other. That’s because they carry specific types of antibiotic-resistent bacteria in their lungs that, if swapped, can cause lung infection. And chronic infection leads to lung damage which can shorten a CF patient’s life span.”
+
 He said that in the 80’s it was really popular to have camps where CF patients could spend time around each other and hang out. When they held these camps, epidemics broke out. They learned that CF patients are contagious to each other. That’s why if there is ever a CF benefit or run or anything like that, there can only be 1 pre-approved CF patient present. It’s crazy.
  
 He went over different things that we will have to do with Finley both now and later on in his life. It was great to hear everything and know that he will act and look just like a normal child. He even said that as much as about 10 years ago you could look at a child and recognize that they have CF, but not now.
