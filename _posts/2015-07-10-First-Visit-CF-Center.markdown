@@ -25,6 +25,7 @@ Dr. Guglani spoke with us for about an hour or so and covered just about everyth
  
 He also let us know that CF patients can’t be around each other. Cystic Fibrosis is the only disease where the patients can’t be around each other.
  
+>“The sad but true news is that cystic fibrosis patients do pose a threat to each other. That’s because they carry specific types of antibiotic-resistent bacteria in their lungs that, if swapped, can cause lung infection. And chronic infection leads to lung damage which can shorten a CF patient’s life span.”
 
 He said that in the 80’s it was really popular to have camps where CF patients could spend time around each other and hang out. When they held these camps, epidemics broke out. They learned that CF patients are contagious to each other. That’s why if there is ever a CF benefit or run or anything like that, there can only be 1 pre-approved CF patient present. It’s crazy.
  
